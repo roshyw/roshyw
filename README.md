@@ -4,6 +4,4 @@
 
 I have very poor social skills, sorry about that.
 
-I'm a lesboy, if you don't like that feel free to not interact with me.
-
-Please don't include me in pointless drama, or shipcourse. I will block you.
+Please don't include me in pointless drama, or shipcourse, or queercourse I will block you.
