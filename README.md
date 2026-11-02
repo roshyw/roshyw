@@ -4,4 +4,7 @@
 
 
 
+i don't like people walking up to me anfd talking that much, I have really bad social skills and don't know wha tto say half the time I apologize
+
+
 
